@@ -1,0 +1,2 @@
+# Bilgi Yarışması 1
+
